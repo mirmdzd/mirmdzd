@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mirmdzd
+- 👀 I’m interested in coding in Raw coding! I mean, I avoid front-end. However, I am also very interested in game developing.(from 2020)
+- 🌱 I’m currently Compiling and upgrading the various skills I have and adding new skills.
+- 💞️ I’m looking to collaborate on unity game developing and any project that i can usefull in.
+- 📫 you can reach me with @mirmdzd on all social media.
